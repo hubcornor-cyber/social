@@ -1,1 +1,1 @@
-https://hubcornor-cyber.github.io/social/
+https://oyesafi.github.io/social/
